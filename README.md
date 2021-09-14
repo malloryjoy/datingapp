@@ -27,7 +27,7 @@ The more you have of a certain letter, the more likely you'll end up with that p
 
 ## How the Results Work 
 
-In the inspirational scene, each leadership personality is given three corresponding characteristics. These same characteristics are used for your personality type in this quiz. Your corresponding matches are b
+In the inspirational scene, each leadership personality is given three corresponding characteristics. These same characteristics are used for your personality type in this quiz. 
 
 Your corresponding relationship match is based on who you would have the most chemistry with, based on corresponding pairings in other sitcoms. Each character result was put up against the three characteristics of each personality type, and given a corresponding type. As a result, you'll see "Leslie" results matched with "Ben" results, and "Andy" results matched with "April" results. 
 
